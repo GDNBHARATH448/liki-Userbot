@@ -1,4 +1,4 @@
-<p align="center"><a href="https://t.me/VenomOwners"><img src="https://te.legra.ph/file/0b373de1c657129297c39.jpg"></a></p>
+<p align="center"><a href="https://t.me/VenomOwners"><img src="https://files.catbox.moe/fjjprr.jpg"></a></p>
 
 ━━━━━━━━━━━━━━━━━━━━━━
 
